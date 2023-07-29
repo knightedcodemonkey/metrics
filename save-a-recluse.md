@@ -9,10 +9,10 @@ _The solitude has made me uneasy_
 _I regret putting people beneath me_  
 _I want to meet someone_  
 _I want to have some fun_
-_It can last one night or for life if it's right_
-_I'm getting bored with myself_
-_I want to rejoice in somebody else_
-_Rejoice in somebody else_
+_It can last one night or for life if it's right_  
+_I'm getting bored with myself_  
+_I want to rejoice in somebody else_  
+_Rejoice in somebody else_  
 
 Perched above the masses below  
 I can pass judgment and turn shallow  
