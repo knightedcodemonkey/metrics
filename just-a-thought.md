@@ -5,7 +5,7 @@ Sometimes you could say life is dull
 We taste the good Lord on Sunday  
 I hate roads that only go one way  
 
-_So I keep things to myself_
+_So I keep things to myself_  
 _As the seasons change with time_  
 _I know I'm like everyone else_  
 _We all like songs that rhyme_  
